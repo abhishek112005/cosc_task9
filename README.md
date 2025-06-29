@@ -1,3 +1,4 @@
 # cosc_task9
 
-![image](https://github.com/user-attachments/assets/87892401-c0bf-440a-a312-2b88075aadd9)
+![image](https://github.com/user-attachments/assets/4c20bf67-d25e-47b5-94ba-b8dda10368f6)
+
